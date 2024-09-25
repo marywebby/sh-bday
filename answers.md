@@ -5,7 +5,7 @@
 ### General Knowledge 
 
 1. July of 2023
-2. 3 Brothers - Birth order (Johnathon, Sarah, Alexander, )
+2. 3 Brothers - Birth order (Johnathon, Sarah, Benjamin, Alexander)
 3. Alumni Relations and Development
 4. Soccer + Dance 
 5. Blue 
